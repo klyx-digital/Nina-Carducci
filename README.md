@@ -1,1 +1,1 @@
-https://klyx-digital.github.io/NINA-CARDUCCI/
+https://klyx-digital.github.io/Nina-Carducci/
